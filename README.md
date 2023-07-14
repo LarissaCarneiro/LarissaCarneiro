@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da LarissaCarneiro 😁
+## Bem-vindo(a) ao perfil da LarissaCarneiro 😸
 
  <div>
    <a href="https://github.com/LarissaCarneiro">
